@@ -1,0 +1,1 @@
+# just-my-simple-config-for-neofetch-nothing-special-
